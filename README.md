@@ -1,4 +1,4 @@
-## I'm a Student, Developer and 3D Artist!
+## I'm a Developer and 3D Artist!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - ⚡ About me: I love to draw and play games
